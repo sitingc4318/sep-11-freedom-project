@@ -4,7 +4,7 @@ I have decided to do Financial Planning for a purpose. Many people especially te
 
 In the article https://www.nerdwallet.com/blog/investing/what-is-a-financial-plan-how-can-i-make-one/, their are solution to financial planning step by step. Which all start from setting a goal for yourself.
 
-I'm now in beginning of the stage of the engineering process, where I research and gather information from the articles. I will be finding solution for how to plan in financial. This is related to engineering that I have learned in class because business today can be checked upon website and their is financial marketing everywhere.
+I am a student from HSTAT and in the SEP program, this is the 3rd year. I'm now in beginning of the stage of the engineering process, where I research and gather information from the articles. I will be finding solution for how to plan in financial. This is related to engineering that I have learned in class because business today can be checked upon website and their is financial marketing everywhere.
 
 To sum up, doing financial planning can also help me learn how to save money and achieve goals in the future. In https://www.planwithfps.com/ there are many different kinds of financial planning for different people. For example, college payment, and starting a new business. Don't worry all solution will be solved starting now!
 
